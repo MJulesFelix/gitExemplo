@@ -1,1 +1,1 @@
-arquivo informando blá blá blá
+blá blá blá
